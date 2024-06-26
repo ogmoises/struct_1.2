@@ -1,1 +1,1 @@
-Nomes: Henrique Izar - 222026985 e Moisés  Altounian - 200069306.
+Nomes: Henrique Izar - 222026985 e Moises  Altounian - 200069306.
